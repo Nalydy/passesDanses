@@ -1,32 +1,39 @@
 ### **Liste de vidéos 4T avec le timing des passes intéressantes**
 
 
-> https://www.youtube.com/watch?v=-FfI6gT1JbY (le fameux ed sheeran)
+> https://www.youtube.com/watch?v=-FfI6gT1JbY (le fameux ed sheeran - Olivier et Aliénor)
 
 - [0:13](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=0m13s) : la vague
 - [1:00](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m00s) : tombé main au coeur
-- [1:21](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m21s) : tombé classe
-- [2:15](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=2m15s) : tombé Emilie magnifique
+- [1:19](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m19s) : tombé classe
+- [2:12](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=2m12s) : tombé Emilie magnifique
 - [3:01](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=3m01s) : très jolie coiffe
-- [4:18](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m18s) : tombé double coiffe
-- [4:28](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m28s) : version améliorée de mon tombé
+- [3:41](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=3m41s) : penché inversé
+- [4:17](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m17s) : tombé double coiffe
+- [4:24](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m24s) : version améliorée de mon tombé (Gif 208)
 
 ----
 
-> https://www.youtube.com/watch?v=cbA9-J-Bums ("ce mec est super sympa est super doué :3")
+> https://www.youtube.com/watch?v=cbA9-J-Bums (Finale J&J Vétéran - Sandra et Nikita)
 
+- [0:25](https://www.youtube.com/watch?v=cbA9-J-Bums&t=0m25s) : styling jambe fille
+- [0:56](https://www.youtube.com/watch?v=cbA9-J-Bums&t=0m56s) : tombé bras tendus
+- [1:00](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m00s) : styling jambe fille
 - [1:30](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m30s) : tombé avant
 - [1:56](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m56s) : beau passage sous bras du mec
+- [3:17](https://www.youtube.com/watch?v=cbA9-J-Bums&t=3m17s) : tombé duck bras tendu
 
 ----
 
-> https://www.youtube.com/watch?v=zU8uqn_mPY4 ("toujours Nikita, avec une danseuse extraordinaire")
+> https://www.youtube.com/watch?v=zU8uqn_mPY4 (Démo Palais Maillot - Anastasia et Nikita)
 
+- [0:38](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=0m38s) : crocheté et cambrure
 - [1:00](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m00s) : tour de la piste en pseudo valse
 - [1:10](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m10s) : soleil magnifique
-- [1:43](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m43s) : tombé carrément sexy
+- [1:43](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m43s) : penché latéral carrément sexy
 - [1:50](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m50s) : double duck (o.O)
 - [1:53](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m53s) : comment amener "tête mec entre double bras"
+- [1:58](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m58s) : tombé triple
 - [2:02](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=2m02s) : tombé Emilie avancé++
 - [2:15](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=2m15s) : porté tourné classe & sexy
 - [3:20](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=3m20s) : porté .. un jour peut être
@@ -101,5 +108,3 @@
 ----
 
 ### **Autre**
-- Test
-- Test
