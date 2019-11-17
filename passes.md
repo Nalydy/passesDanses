@@ -1,16 +1,16 @@
 ### **Liste de vidéos 4T avec le timing des passes intéressantes**
 
 
-> https://www.youtube.com/watch?v=-FfI6gT1JbY (le fameux ed sheeran - Olivier et Aliénor)
+> https://www.youtube.com/watch?v=-FfI6gT1JbY (Le fameux ed sheeran à la MAS - Olivier et Aliénor)
 
 - [0:13](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=0m13s) : la vague
 - [1:00](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m00s) : tombé main au coeur
-- [1:19](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m19s) : tombé classe
-- [2:12](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=2m12s) : tombé Emilie magnifique
+- [1:19](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=1m19s) : tombé classe main à l'épaule
+- [2:12](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=2m12s) : tombé Emilie magnifique (Gif 201 + évolution Gif 202)
 - [3:01](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=3m01s) : très jolie coiffe
 - [3:41](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=3m41s) : penché inversé
 - [4:17](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m17s) : tombé double coiffe
-- [4:24](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m24s) : version améliorée de mon tombé (Gif 208)
+- [4:24](https://www.youtube.com/watch?v=-FfI6gT1JbY&t=4m24s) : version améliorée de mon tombé (Gif 218)
 
 ----
 
@@ -19,7 +19,6 @@
 - [0:25](https://www.youtube.com/watch?v=cbA9-J-Bums&t=0m25s) : styling jambe fille
 - [0:56](https://www.youtube.com/watch?v=cbA9-J-Bums&t=0m56s) : tombé bras tendus
 - [1:00](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m00s) : styling jambe fille
-- [1:30](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m30s) : tombé avant
 - [1:56](https://www.youtube.com/watch?v=cbA9-J-Bums&t=1m56s) : beau passage sous bras du mec
 - [3:17](https://www.youtube.com/watch?v=cbA9-J-Bums&t=3m17s) : tombé duck bras tendu
 
@@ -27,44 +26,56 @@
 
 > https://www.youtube.com/watch?v=zU8uqn_mPY4 (Démo Palais Maillot - Anastasia et Nikita)
 
-- [0:38](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=0m38s) : crocheté et cambrure
+- [0:16](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=0m16s) : styling face à face jambe arrière tendue
+- [1:26](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m26s) : tombé arrière glissé + sortie
+- [0:38](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=0m38s) : crocheté et cambrure (Gifs 204 et 205)
 - [1:00](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m00s) : tour de la piste en pseudo valse
-- [1:10](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m10s) : soleil magnifique
+- [1:10](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m10s) : planche (accro) (Gif 237)
 - [1:43](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m43s) : penché latéral carrément sexy
-- [1:50](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m50s) : double duck (o.O)
+- [1:48](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m48s) : double duck (o.O)
 - [1:53](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m53s) : comment amener "tête mec entre double bras"
-- [1:58](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m58s) : tombé triple
-- [2:02](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=2m02s) : tombé Emilie avancé++
-- [2:15](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=2m15s) : porté tourné classe & sexy
-- [3:20](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=3m20s) : porté .. un jour peut être
+- [1:58](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=1m58s) : tombé triple (tombé Emilie avancé++)
+- [2:15](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=2m15s) : porté tourné classe & sexy (± Gif 221/222)
+- [3:17](https://www.youtube.com/watch?v=zU8uqn_mPY4&t=3m17s) : porté .. un jour peut être
 
 ----
 
-> https://www.youtube.com/watch?v=XKS61IwXB3s (Nikita again)
+> https://www.youtube.com/watch?v=XKS61IwXB3s (Chorégraphie Ulm - Nikita et Héloïse)
 
 - [0:08](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m08s) : jolie balade
-- [0:41](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m41s) : break sexy (ne se guide pas)
-- [1:22](https://www.youtube.com/watch?v=XKS61IwXB3s&t=1m22s) : duck après multi tours
-- [2:08](https://www.youtube.com/watch?v=XKS61IwXB3s&t=2m08s) : tombé pour break
+- [0:26](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m26s) : tour styling fille
+- [0:41](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m41s) : break sexy (ne se guide pas) - (mdr j'étais sûre que tu allais le garder celui-là xD)
+- [0:52](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m52s) : tombé avant + sortie
+- [0:56](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m56s) : tours intérieurs puis duck fille (Gif 189)
+- [0:58](https://www.youtube.com/watch?v=XKS61IwXB3s&t=0m58s) : tombé latéral fille dos au mec (à voir si c'est bien guidable)
+- [1:45](https://www.youtube.com/watch?v=XKS61IwXB3s&t=1m45s) : tour fille sur une jambe + sortie
+- [2:06](https://www.youtube.com/watch?v=XKS61IwXB3s&t=2m06s) : cambrure stylée hairdance
+- [2:42](https://www.youtube.com/watch?v=XKS61IwXB3s&t=2m42s) : dauphin (Gif 223)
+- [2:57](https://www.youtube.com/watch?v=XKS61IwXB3s&t=2m57s) : glissé genoux fille styling après compression
 
 ----
 
-> https://www.youtube.com/watch?v=MZxE6lwBdV4 (des amis d'Ulm)
+> https://www.youtube.com/watch?v=MZxE6lwBdV4 (JnJ Confirmés Finale - Claire et Guillaume)
 
-- [0:35](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=0m35s) : tombé avant ~ inter
-- [0:56](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=0m56s) : vague de break
-- [1:37](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=1m37s) : jolie vague
-- [1:53](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=1m53s) : tombé arrière
-- [3:16](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=3m16s) : ressort
+- [0:35](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=0m35s) : penché avant latéral ~ inter
+- [0:56](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=0m56s) : vague de break (coup de bassin ahah)
+- [1:37](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=1m37s) : jolie vague face à face guidée
+- [1:53](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=1m53s) : tombé arrière par dessus la tête (Gif 121)
+- [3:16](https://www.youtube.com/watch?v=MZxE6lwBdV4&t=3m16s) : ressort / whip simple (Gif 139)
 
 ----
 
-> https://www.youtube.com/watch?v=kXSP3kbMqgU ("lui c'est le cador que Romain veut détruire à coups de poings xD")
+> https://www.youtube.com/watch?v=kXSP3kbMqgU (JnJ Invités - Sandra et Yann)
 
-- [0:30](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=0m30s) : passage nuque homme
+- [0:28](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=0m28s) : passage nuque homme
+- [0:33](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=0m33s) : jambe tendue fille ligne cavalier
+- [0:50](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=0m50s) : buste barré et vague fille (en mode coucou c'est moi)
+- [0:58](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=0m58s) : tombé une main deux jambes au sol
 - [1:20](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=1m20s) : toupie en attirant la fille
-- [1:58](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=1m58s) : mouve bg
-- [2:24](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=2:24s) : duck fille
+- [1:39](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=1m39s) : jeu de regard berceau styling fille
+- [1:49](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=1m49s) : tombé sortie sous le bras
+- [1:56](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=1m56s) : mouve bg mec
+- [2:23](https://www.youtube.com/watch?v=kXSP3kbMqgU&t=2m23s) : duck fille + 2 tombés
 
 ----
 
@@ -73,13 +84,33 @@
 - [0:37](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m39s) balade fille autour du mec
 - [0:53](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m53s) enchainement de passes stylées
 - [1:01](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=1m01s) porté Emilie (lol)
-- toute la vidéo est bien, juste .. trèèès haut niveau
+- toute la vidéo est bien, juste .. trèèès haut niveau (dit-il en mettant des vidéos de Tatiana et Jordan après... xD)
 
 ----
 
+> https://www.youtube.com/watch?v=RanGyJkaYek (JnJ Invités - Héloïse et Guigui)
+
+- [0:26](https://www.youtube.com/watch?v=RanGyJkaYek=0:26) : vague guidée latérale
+- [0:39](https://www.youtube.com/watch?v=RanGyJkaYek=0:39) : vague guidée face à face
+- [1:49](https://www.youtube.com/watch?v=RanGyJkaYek=1:49) : ligne de tous et changement de main de ouuuuuf
+- [3:13](https://www.youtube.com/watch?v=RanGyJkaYek=3:13) : jeu de jambes en panier + styling fille
+- [3:26](https://www.youtube.com/watch?v=RanGyJkaYek=3:26) : tombé latéral final
+
+----
+
+> https://www.youtube.com/watch?v=iS6oQXcVGPM (Shows - Jam session Printemps 4 Temps)
+
+- [0:36](https://www.youtube.com/watch?v=iS6oQXcVGPM=0:36) : traversée tour extérieur styling jambe fille
+- [1:08](https://www.youtube.com/watch?v=iS6oQXcVGPM=0:45) : enchaînement de tombés : tombé sortie sous le bras + tombé relevé au-dessus des épaules (± Gif 217)
+- [1:44](https://www.youtube.com/watch?v=iS6oQXcVGPM=1:44) : fille assise sur genoux et styling break
+- [2:21](https://www.youtube.com/watch?v=iS6oQXcVGPM=2:21) : porté rotatif
+- [3:26](https://www.youtube.com/watch?v=iS6oQXcVGPM=3:26) : chandelle + arabesque rotatif (± Gif 221/222)
+- [3:19](https://www.youtube.com/watch?v=iS6oQXcVGPM=3:19) : tombé rotatif mains parallèles (Gif 214)
+
+
 ### **Liste de vidéos WCS avec le timing des passes intéressantes**
 
-> https://www.youtube.com/watch?v=1YMtF8nlyII 
+> https://www.youtube.com/watch?v=1YMtF8nlyII (Tatiana et Jordan)
 
 - [0:12](https://www.youtube.com/watch?v=1YMtF8nlyII&t=0m12s) tombé façon tour de pise sans les mains
 - [0:24](https://www.youtube.com/watch?v=1YMtF8nlyII&t=0m24s) multi tours avec élastique (un must have)
