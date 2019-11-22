@@ -107,6 +107,10 @@
 - [3:26](https://www.youtube.com/watch?v=iS6oQXcVGPM&t=3m26s) : chandelle + arabesque rotatif (± Gif 221/222)
 - [3:19](https://www.youtube.com/watch?v=iS6oQXcVGPM&t=3m19s) : tombé rotatif mains parallèles (Gif 214)
 
+----
+
+- [tombé après tête dans les bras](https://www.youtube.com/watch?v=Wm8Z5vtzwyQ&t=1m50s) : stylé + un peu sexy
+
 
 ### **Liste de vidéos WCS avec le timing des passes intéressantes**
 
@@ -134,7 +138,10 @@
 ### **Liste de vidéos 6T avec le timing des passes intéressantes**
 
 - [porté rotatif](https://www.youtube.com/watch?v=G2OHBokp5L0&t=1m17s)
-
+- [Elastique mains croisées](https://www.youtube.com/watch?v=olfmoroxYHo&t=0m52s)
+- [Double double clap](https://www.youtube.com/watch?v=olfmoroxYHo&t=1m14s)
+- [Multi tours elastique](https://www.youtube.com/watch?v=NXNCu6ekccw&t=0m38s)
+- [variante elastique ventre](https://www.youtube.com/watch?v=J6e34e4kowU&t=2m04s)
 
 ----
 
