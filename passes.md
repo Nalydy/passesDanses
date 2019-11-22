@@ -148,3 +148,4 @@
 ### **Autre**
 
 - [accro jive](https://www.youtube.com/watch?v=TnLpdld9E7M&t=3m19s) : insane
+- [enchainement mi accro jive](https://www.youtube.com/watch?v=TnLpdld9E7M&t=5m53s) : pour une fois que c'est l'homme qui passe entre les jambes
