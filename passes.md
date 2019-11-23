@@ -79,11 +79,18 @@
 
 ----
 
-> https://www.youtube.com/watch?v=TMpVKWJbrMo (rock accro)
+> https://www.youtube.com/watch?v=TMpVKWJbrMo (Printemps 4 Temps - chorégraphie - Sandra et Ludovic)
 
-- [0:37](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m39s) : balade fille autour du mec
+- [0:37](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m37s) : balade fille autour du mec
+- [0:47](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m47s) : noeuds de bras 1
+- [0:53](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m53s) : noeuds de bras 2
 - [0:53](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=0m53s) : enchainement de passes stylées
-- [1:01](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=1m01s) : porté Emilie (lol) (Gif 243)
+- [1:02](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=1m02s) : porté Emilie (lol) (Gif 243 : déroulé en étoile)
+- [1:37](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=1m37s) : duck feinte
+- [1:50](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=1m50s) : styling duck break après traversée de tours
+- [2:05](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=2m05s) : tombé arrière, enjambement, sortie
+- [2:25](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=2m25s) : chandelle inversée tête en bas
+- [3:13](https://www.youtube.com/watch?v=TMpVKWJbrMo&t=3m13s) : superman à un bras avancé ++
 - toute la vidéo est bien, juste .. trèèès haut niveau (dit-il en mettant des vidéos de Tatiana et Jordan après... xD)
 
 ----
@@ -134,6 +141,21 @@
 ----
 
 - [4:30](https://www.youtube.com/watch?v=GVdT63wsCPQ&t=4m30s) variante du must have et suite de passes dingues
+
+----
+
+> https://www.youtube.com/watch?v=2a3RY8UbE0w (World Cup 2009 in Moscow - Tatiana et Jordan)
+
+- [0:53](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=0m53s) : caresse + prise de connexion dos + circle
+- [1:07](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=1m07s) : traversée (tour intérieur + duck + tour extérieur pour la fille / changement de main + dos à dos + changement de main pour le mec)
+- [1:23](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=1m23s) : traverséée (tour int avant stoppé + tour int retour avec autre main + tour libre retour face à face)
+- [1:42](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=1m42s) : noeuds de bras
+- [2:02](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=2m02s) : traversée avec plusieurs tours extérieurs + styling tête fille sortie
+- [2:09](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=2m09s) : noeuds de bras + sortie homme duck
+- [2:31](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=2m31s) : traversée de duck + enjambement sortie
+- [3:04](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=3m04s) : mise en clé de bras + sortie semi-accro (abdos ++ x) )
+- [3:14](https://www.youtube.com/watch?v=2a3RY8UbE0w&t=3m14s) : double duck
+
 
 ### **Liste de vidéos 6T avec le timing des passes intéressantes**
 
