@@ -164,6 +164,7 @@
 - [Double double clap](https://www.youtube.com/watch?v=olfmoroxYHo&t=1m14s)
 - [Multi tours elastique](https://www.youtube.com/watch?v=NXNCu6ekccw&t=0m38s)
 - [variante elastique ventre](https://www.youtube.com/watch?v=J6e34e4kowU&t=2m04s)
+- [Titanic ++](https://www.youtube.com/watch?v=SgrWE_W9wkc&t=1m14s)
 
 ----
 
